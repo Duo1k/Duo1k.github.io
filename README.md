@@ -1,1 +1,1 @@
-# Duo1k.github.io
+# Duo1k
